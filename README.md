@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AbdullahSheehan
 - 👀 Interested in everything -,-
-- 🌱 Currently studying Mechanical Engineer at Bangladesh University of Engineering Technology
+- 🎓 Currently studying Mechanical Engineer at Bangladesh University of Engineering Technology
 - 💼 Co-Founder & Chief Technology Officer @SulphuricBench
 - 📫 Reach me at: abdullah.sheehan@sulphuricbench.com
 
